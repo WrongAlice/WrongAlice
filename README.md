@@ -6,8 +6,8 @@
 - 🌱 I’m currently learning ...IPFS
 - 👯 I’m looking to collaborate on ...React Projects
 - 🤔 I’m looking for help with ...React Projects
-- 💬 Ask me about ...Magick and Alchemy
+- 💬 Ask me about ... Anything.
 - 📫 How to reach me: ...electronic letter
 - 😄 Pronouns: ... try/ me
-- ⚡ Fun fact: ...I am a Buddhist!
+- ⚡ Fun fact: ...I am rlly nice!
 
