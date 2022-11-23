@@ -5,7 +5,7 @@
 - 🔭 I’m currently working on ... A Full Stack Web App
 - 🌱 I’m currently learning ... IPFS
 - 👯 I’m looking to collaborate on ... React Projects
-- 🤔 I’m looking for help with ... learning more
+- 🤔 I’m looking for help with ... learning about more things that I do not yet know of.
 - 💬 Ask me about ... Anything :D
 - 📫 How to reach me: ... electronic letter
 - 😄 Pronouns: ... try/ me :D
